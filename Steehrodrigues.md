@@ -1,0 +1,2 @@
+Meu objetivo é trabalhar na área de vendas de softwere na empresa SAP vender e convencer o cliente de que o seu produto é o melhor, muitas vezes omitindo eventuais pontos fracos em relação à concorrência.O conceito de "ajudar as pessoas a comprarem os seus produtos ou serviços"
+Todo ventedor tem que ter uma boa visão de negocio como,você já vendeu o seu produto ou serviço? Para quem? De qual setor? Quais foram os resultados obtidos? com o objetivo de vender e satisfazer o cliente. Tenho segundo objetivo ("Plano B") trabalhar com web, desenvolver sites.
